@@ -172,7 +172,7 @@ Deal ends: 29th November, 4:59 am UTC
 
 OCEG GRCP All Access Pass and Certification \
 https://www.oceg.org/blackfriday/  
-$100 off GRC Professional All Access Pass (1 year subscription, you can cancel it) 
+$100 off GRC Professional All Access Pass (1 year subscription, you can cancel it) \
 Deal ends: December
 
 ## Mini Course Bundles:
